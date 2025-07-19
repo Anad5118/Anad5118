@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Anad5118
+- 👋 Hi, I’m @Anad
 - 👀 I’m interested in playing games
 
 -  currently learning nuclear physics 👀
